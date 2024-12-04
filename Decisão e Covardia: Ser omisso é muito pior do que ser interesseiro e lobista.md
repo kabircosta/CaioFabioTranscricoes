@@ -1,0 +1,16 @@
+**Decisão e Covardia: Ser omisso é muito pior do que ser interesseiro e lobista.**
+==================================================================================
+
+[https://youtu.be/CBzKLnjei4w?si=EyWCpScjBgfI-1pb](https://youtu.be/CBzKLnjei4w?si=EyWCpScjBgfI-1pb)
+
+Falando sobre os omissos e os maldosos, você mencionou as pessoas que "trabalham para superar os outros". No entanto, existe também quem não age por medo da crítica alheia. **Entre os dois, quem é pior?** Do ponto de vista do evangelho, aquele que não age por medo da crítica dos outros é pior. Pelo menos, o outro, mesmo com uma motivação errada, está fazendo alguma coisa. **Os pobres não se importam com a motivação; eles agradecem pela ajuda que recebem.** Não interessa se alguém doa roupa só para sair bem na foto ou para impressionar, o importante é que o pobre está sendo atendido.
+
+Os pobres não querem saber se quem ajuda está tentando agradar um "lobby humanista" ou ganhar pontos políticos. **Se alguém está com fome ou desabrigado, a ajuda é bem-vinda, independentemente da intenção.** O problema está em quem sabe o que deve fazer, pode fazer o certo, mas não faz por medo de críticas ou de ser mal interpretado. Esse tipo de omissão é devastador, porque, por causa desse comportamento, **pessoas continuam passando fome e sofrendo do outro lado do muro.**
+
+Essa é uma das razões pelas quais, muitas vezes, o mundo político se enche de pessoas que querem apenas aparecer. Estão ali pela foto, por interesses ocultos ou pela competição. **Enquanto isso, aqueles que realmente poderiam fazer algo dizem: "Não vou agir porque vão pensar mal de mim, vão achar que sou corrupto ou que tenho uma agenda oculta."** Assim, esses omissos protegem sua reputação, mas deixam a miséria crescer. Como resultado, os espaços de poder acabam ocupados por aqueles que estão dispostos a competir ou até mesmo a roubar.
+
+O apóstolo Paulo já dizia em **1 Coríntios 13**: "Ainda que eu distribua todos os meus bens aos pobres, se não tiver amor, nada disso me aproveitará." **Porém, para o pobre, o que importa é a ajuda que chega.** Mesmo que a motivação seja egoísta ou errada, o ato de ajudar faz diferença. Diante disso, fica claro: **o covarde omisso é o pior.** No livro do Apocalipse, está escrito que os covardes não herdarão o Reino de Deus. Isso se refere àquele que tem tudo nas mãos para agir, mas não age. Não estende a mão porque tem medo do risco, medo de ser mal interpretado ou até mesmo de perder algo.
+
+O diagnóstico do evangelho é claro: **o covarde e omisso está errado.** Quem vive preocupado com o que os outros vão pensar — em ser "politicamente correto" — acaba promovendo esse tipo de comportamento. Por outro lado, vemos que muitos neopentecostais não se preocupam com isso. Eles agem sem pensar no julgamento alheio. Um exemplo citado foi de alguém que disse: "Eu só preciso de 3% da população me dando dinheiro; com isso, já terei mais do que o suficiente." Essa estratégia mostra como **os "filhos das trevas" muitas vezes são mais hábeis na sua geração do que os "filhos da luz".**
+
+Por fim, **a omissão e a covardia são homicidas.** Esse tipo de comportamento, de quem se esconde atrás do medo ou da aparência, é o que mais perturba e causa danos na sociedade.
