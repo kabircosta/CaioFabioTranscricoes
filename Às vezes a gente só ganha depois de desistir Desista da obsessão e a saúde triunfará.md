@@ -1,4 +1,4 @@
-**Às vezes a gente só ganha depois de desistir Desista da obsessão e a saúde triunfará**
+# <a name="_p9khxf3o37rz"></a>**Às vezes a gente só ganha depois de desistir Desista da obsessão e a saúde triunfará**
 <https://youtu.be/XYgQ1_6bH70?si=04dIzrf7LWFLD0cb>
 
 **Vocês sabem que, ao longo da vida, quanto mais o tempo passa, mais temos a chance de observar, identificar e perceber claramente uma série de fenômenos.** 
@@ -30,4 +30,3 @@ Isso vale também para o talento e o desenvolvimento pessoal. **Quem usa seu dom
 Jesus disse que o reino de Deus está em nós. E é justamente isso: **o sucesso, a paz e a felicidade não vêm de fora, mas do que se desenvolve dentro de nós.** Quando abandonamos as personas que criamos para agradar ao mundo, finalmente encontramos nossa essência e nos abrimos para as verdadeiras bênçãos da vida.
 
 Por isso, desista das obsessões e das comparações. **A vida é feita de encontros saudáveis e integrais, não de fixações.** Muitas vezes, o "strike" da nossa vida surge após tropeçarmos, quando finalmente largamos o peso de querer tudo sob controle. E, nesse momento, experimentamos o prazer e a alegria genuína que só vêm com a graça e o descanso.
-
